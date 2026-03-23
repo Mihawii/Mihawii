@@ -16,4 +16,4 @@ Commits:   172
 Stars:     00
 ```
 
-&nbsp; [LinkedIn](https://www.linkedin.com/in/olzhas-mukhtarov-21b9ba370)
+&nbsp; [LinkedIn](https://www.linkedin.com/in/olzhas-mukhtarov-21b9ba370) &nbsp; [personal website](https://olzhas.space/)
